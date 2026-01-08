@@ -1,1 +1,8 @@
 # scaling-guide
+
+hei hei 🇳🇴
+
+🍕
+
+### ja
+
